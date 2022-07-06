@@ -1,4 +1,4 @@
 - 👋 Bonjour, I’m @shivxbhagat
 - 👀 I’m interested in Coding and Music
-- 🌱 I’m currently a honours sophomore student at University of Manitoba
+- 🌱 I’m currently an honours sophomore student at University of Manitoba
 - 📫 Reach me at [📧](mailto:shivbhagat@icloud.com)
